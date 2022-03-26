@@ -1,1 +1,0 @@
-# ayuda-a-un-peludo
